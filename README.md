@@ -1,1 +1,1 @@
-My first readme
+Progress is achieved with shear grit
